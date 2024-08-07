@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LeMathE
 - 👀 I’m interested in Mathematics & Data Science
-- 🌱 I’m currently learning Mathematics as my undergroud
+- 🌱 I’m currently learning Mathematics as my undergraduate
 - 💞️ I’m looking to collaborate on sth
 - 📫 How to reach me: ibethelo22@gmail.com
 - 😄 Pronouns: she/her/hers
