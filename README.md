@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @LeMathE
 - 👀 I’m interested in Mathematics & Data Science
 - 🌱 I’m currently learning Mathematics as my undergraduate
-- 💞️ I’m looking to collaborate on sth
+- 💞️ I’m looking to collaborate on math
 - 📫 How to reach me: ibethelo22@gmail.com
 - 😄 Pronouns: she/her/hers
 - ⚡ Fun fact: ...
